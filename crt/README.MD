@@ -2,7 +2,7 @@
 
 ### *Cristiane M. Cerri Ribeiro*
 
-##   <img src="img/cris.jpg" alt="0" style="zoom: 50%;" />
+##   <img src="img/crft.jpg" alt="0" style="zoom: 50%;" />
 
 #### **Olá bem vindo... ao meu diploma de pós graduação** 
 
